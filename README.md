@@ -37,10 +37,3 @@ If you want to send message with in room or in hall but are not want to talk lou
 
 
 
-Previous
-
-Next
-
-
-
-Hookup
